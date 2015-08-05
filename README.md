@@ -1,4 +1,4 @@
-# CivcraftLongformInfo
+Original Thread: https://www.reddit.com/r/worldbuilding/comments/1u08uu/we_built_a_living_breathing_world_on_rcivcraft_a/
 
 ##Introduction
 
